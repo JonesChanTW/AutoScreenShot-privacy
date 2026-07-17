@@ -1,0 +1,1 @@
+# AutoScreenShot-privacy
